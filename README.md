@@ -1,1 +1,1 @@
-# M-ga-Gamer
+# M-gaGamer
